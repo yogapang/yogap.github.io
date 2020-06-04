@@ -1,2 +1,0 @@
-# yogap.github.io
-Aiih
